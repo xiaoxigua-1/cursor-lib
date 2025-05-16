@@ -1,3 +1,3 @@
 # XCursor library
 
-- [xxhacucoxx](https://fxtwitter.com/hero0512118/status/1853974289323823299)
+- [xxhacucoxx](xxhacucoxx) [from](https://fxtwitter.com/hero0512118/status/1853974289323823299)
